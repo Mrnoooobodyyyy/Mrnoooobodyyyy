@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mrnoooobodyyyy
+- 👋 Hi, I’m @Manas_Sarode
 - 👀 I’m interested in coding and technology
 - 🌱 I’m currently pursuing diploma from shri vaishnav polytechnic college of indore  
 - 💞️ I’m looking to collaborate on any project that will help me grow 
